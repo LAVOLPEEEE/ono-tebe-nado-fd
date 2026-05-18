@@ -1,1 +1,1 @@
-https://github.com/LAVOLPEEEE/ono-tebe-nado-fdxs
+https://github.com/LAVOLPEEEE/ono-tebe-nado-fd
